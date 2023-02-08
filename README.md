@@ -6,10 +6,7 @@ Some description!
 
 Watch tutorial on Youtube.
 
-## Local Development
+the 7  articles contains 7 devisions
 
-1. Open index.html in your browser.!
-
-
-
+u gotta know your history
 
