@@ -10,3 +10,8 @@ the 7  articles contains 7 devisions
 
 u gotta know your history
 
+fdoibdijnbdobnj
+kjdbjnbdj
+
+vfkhvbfh
+vhkvn 
